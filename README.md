@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rrohaill
+- 👋 Hi, I’m Rohail
 - 👀 I’m interested in almost everything
 - 🌱 I’m currently learning new stuff
 - 💞️ I’m looking to collaborate on interesting projects
